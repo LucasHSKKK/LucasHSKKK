@@ -2,7 +2,7 @@
 - 👀 I’m interested in be better every days
 - 🌱 I’m currently learning python
 - 💞️ I’m looking to collaborate on evry thing that i can learn
-- 📫 How to reach me 
+- 📫 How to reach me: just scream my name
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: when i discovery, i will write here
 
