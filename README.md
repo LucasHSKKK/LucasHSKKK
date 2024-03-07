@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @LucasHSKKK
 - 👀 I’m interested in be better every days
 - 🌱 I’m currently learning python
-- 💞️ I’m looking to collaborate on every thing that i can learn
+- 💞️ I’m looking to collaborate on everything that i can learn
 - 📫 How to reach me: just scream my name
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: when i discovery, i will write here
